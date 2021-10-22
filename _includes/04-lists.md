@@ -1,5 +1,10 @@
-:heart:
-👍	:+1:
-😄	:smile:
-✨	:sparkles:
-🎉	:tada
+👪
+ .👱‍♂️
+ .👩
+ .👶
+
+my favorite flavors of ice cream
+
+1.vanilla
+2.chocolate
+3.strawberry
